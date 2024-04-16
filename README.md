@@ -65,3 +65,43 @@ Here's a dictionary-style translation of the vocabulary used in Gobi's:
 51. Adorante (Spanish: adorando) - worshiping
 52. Tranquilitate (French: tranquillité) - tranquility
 53. Contineva (Spanish: contenía) - contained
+
+In the provided text of Gobi's, we can identify the following verbs:
+
+1. Exstavi (stood)
+2. Parlavi (talked)
+3. Osavi (dared)
+4. Entrar (to enter)
+5. Intravit (ventured)
+6. Caminavit (walked)
+7. Escuchante (listening)
+8. Attingit (reached)
+9. Brilliava (shone)
+10. Discoperit (discovered)
+11. Bibit (drank)
+12. Renovat (rejuvenated)
+13. Inspirat (inspired)
+14. Retornat (returned)
+15. Esseva (was)
+16. Habeva (had)
+
+These verbs cover actions and states described in the text, providing a basis for constructing sentences and expressing various meanings in Gobi's.
+
+
+**Present Tense Conjugations for "Esseva" (To be):**
+1. Io es (I am)
+2. Tu es (You are)
+3. Il/Elle/On es (He/She/It is)
+4. Nos es (We are)
+5. Vos es (You are)
+6. Illes es (They are)
+
+**Present Tense Conjugations for "Habeva" (To have):**
+1. Io have (I have)
+2. Tu have (You have)
+3. Il/Elle/On have (He/She/It has)
+4. Nos have (We have)
+5. Vos have (You have)
+6. Illes have (They have)
+
+
