@@ -123,6 +123,27 @@ Le historia de Marco e le jungal esseva un inspiration pro le citatinos de Lumin
 Le citatinos de Lumina apprendeva que le secretos del jungal non esseva in su obscuritate, ma in su belleza e tranquilitate. E illes comprendeva que, como Marco, illes poteva discoperir lor proprie connexion con le natura e le mysterios del mundo, si illes solo osava entrar in le jungal e audir le susurro del folias.
 
 
+
+
+**Biggest story for Zipf's Law analysis**
+
+In the city of Lumina, the citizens had a great fascination with the jungle that stood in the middle of the urban area. Everyone talked about the mysteries of the jungle, but no one dared to enter it. The jungle was a mysterious place, full of secrets and dense trees.
+
+One day, a young man named Marco, who was fascinated by the wild nature, ventured into the jungle. He walked among the dense trees, listening to the song of the birds and the rustle of the leaves. He was not afraid, only curious and eager to discover the secrets of the jungle.
+
+Suddenly, Marco reached a splendid clearing, where the sun shone through the green leaves. He discovered a crystal-clear spring, whose water sparkled like the sun. Marco drank from the water, feeling rejuvenated and inspired by its beauty. He felt that he was part of the jungle, and that the jungle was part of him.
+
+From that day on, Marco frequently returned to the jungle. He loved the tranquility and the mysteries it contained. He had a special connection with the nature and essence of the jungle.
+
+One day, Marco had an encounter with a wise old man who had lived in the jungle for many years. The old man revealed to Marco the ancient secrets of the jungle and the mysterious stories of the past. He told of remote times when the jungle was full of life and even greater mysteries.
+
+Marco learned a lot from the old man and the history of the jungle. He understood that the jungle had its own history and that he was a guardian of this mysterious place.
+
+The story of Marco and the jungle was an inspiration for the citizens of Lumina. They began to see the jungle not as a place of fear, but as a sanctuary of nature and mystery. The jungle became a symbol of connection with nature and the essence of the world.
+
+The citizens of Lumina learned that the secrets of the jungle were not in its darkness, but in its beauty and tranquility. And they understood that, like Marco, they could discover their own connection with nature and the mysteries of the world, if they only dared to enter the jungle and listen to the rustle of the leaves.
+
+
 ## Here are 30 phrases created , along with their English translations:
 
 1. Lumina es un cité splendide.
